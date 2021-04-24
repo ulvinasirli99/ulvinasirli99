@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 🖲️ Each line of code is a subtlety
 - 📫 How to reach me ...
-- 📱 https://whatssap.me/+994708635766
+- 📱 https://bit.ly/32LMAP6
 
 <!---
 Ulvi Nasirov is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
