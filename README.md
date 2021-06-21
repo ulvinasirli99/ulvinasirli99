@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **Dart/Flutter**
 
-- 📫 How to reach me **ulvi.1999rufet@gmail.com**
+- 📫 How to reach me **https://wa.link/sdvhh7**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
