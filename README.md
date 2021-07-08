@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **https://wa.link/sdvhh7**
 
-- 📫 My Website **https://cutt.ly/6mr6rDq**
+- 👀 My Website **https://cutt.ly/6mr6rDq**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
